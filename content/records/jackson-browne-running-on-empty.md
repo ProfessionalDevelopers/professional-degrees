@@ -51,9 +51,14 @@ when we got home, empty house, dad gone until the wintertime, this was the first
 ---
 
 This is a good album
-This is the sort of country-blues teenage nostalgia Americana genre of 70s rock that my mom never listened to and I sometimes feel like I missed out on good stuff
+
+This is the sort of country-blues teenage nostalgia Americana genre of 70s rock that my mom never listened to and I sometimes feel like I missed 
+out on good stuff
+
 I never really paid any attention to a Springsteen song until Lily started playing them for me
+
 I still can’t get into the Eagles or steely dan
+
 But I like this Jackson Browne stuff
 
 ---
@@ -61,10 +66,13 @@ But I like this Jackson Browne stuff
 > "the loadout / stay" fucking slays
 
 It’s one of the first pop songs I ever learned on piano
+
 Soon I learned Rosie because it was more relatable than a wistful ballad about roadies
+
 Then later I found out The Load Out was actually about love
 
 ---
+
 Oh also this band
 
 Carole King, Linda Ronstadt, James Taylor, Joni Mitchell, Neil Young, and Warren Zevon also enjoyed the services of this band
@@ -75,9 +83,7 @@ A brilliant, uncredited house band who played on a hundred records you know
 
 These guys were called the Mellow Mafia
 
-They once got in a brawl with an abusive boyfriend of Carole King’s, between encores, while she waited onstage
-
----
+They once got in a brawl with an abusive boyfriend of Carole King’s, between encores, while she waited onstage 
 
 # [Hey look what I found] (https://www.rollingstone.com/music/news/the-section-knights-of-soft-rock-20130411)
 
@@ -180,6 +186,6 @@ I think I would lose my mind if I was at a show and any band played The Load Out
 
 thank you guys for enjoying this dorkass record with me
 
----
+--- 
 
 >I can’t emphasize enough that “Rosie” is about jerking off

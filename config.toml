@@ -1,0 +1,4 @@
+baseURL = "http://professional-degrees.surge.sh/"
+languageCode = "en-us"
+title = "Professional Degrees"
+theme = "sam"
